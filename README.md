@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @idontknowaboutbeer
 - 👀 I’m interested in drinking beer and brewing beer
 - 🌱 I’m currently learning sports science and entrepreneurship
-- 💞️ I’m looking to collaborate on anything. Cuz I don't have idea at coding lol
+- 💞️ I’m looking to collaborate on anything. (I don't have idea at coding.) 
 - 📫 How to reach me gmail@idontknowaboutbeer
 
 <!---
